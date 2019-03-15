@@ -1,3 +1,3 @@
-![Part 1](https://imgur.com/8bMWSi4)
+![Part 1](https://i.imgur.com/8bMWSi4.jpg)
 
-![Parallel](https://imgur.com/4iKi99u)
+![Parallel](https://i.imgur.com/4iKi99u.jpg)
